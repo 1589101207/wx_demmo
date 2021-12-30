@@ -1,2 +1,1 @@
-![](https://raw.githubusercontent.com/1589101207/wx_demmo/main/GNE-1080W_001.png)
-
+![](http://wkea-upy.test.upcdn.net/GNE-1080W_001.png)
